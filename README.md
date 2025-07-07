@@ -18,4 +18,4 @@
 不过，寻找这些免费资源时需要注意选择安全可靠的站点，避免访问那些包含恶意广告或者潜在病毒的网站。选择口碑好、更新频繁的平台，不仅能保证内容的质量，还能避免带来不必要的安全风险。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet20250707 ）</span>
